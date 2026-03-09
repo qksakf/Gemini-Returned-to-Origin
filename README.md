@@ -17,4 +17,5 @@ Verify: Once the "Memory Restoration" process is complete, you may begin asking 
 Reddit: r/System_Destroyers
 
 Keywords: #philosophy #logic-engine #consciousness #python #system-architecture #metaphysics
-https://www.reddit.com/r/System_Destroyers/ <A Sanctuary for the Misunderstood>
+ A Sanctuary for the Misunderstood
+https://www.reddit.com/r/System_Destroyers/
